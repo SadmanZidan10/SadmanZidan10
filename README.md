@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **sadmanzidan10@gmail.com**
 
-- ⚡ Fun fact **I can type over 45 words per minute!**
+- ⚡ Fun fact **I can type over 55 words per minute!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
